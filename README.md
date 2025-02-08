@@ -1,5 +1,5 @@
 ## Hi there 👋
 
-👇 Check my latest projects!
+👇 Check out my latest projects!
 
 https://betterhiretimlee.now
