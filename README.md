@@ -2,7 +2,7 @@
 
 👇🏼 Check out my portfolio and blog!
 
-   - https://timleecoder42.vercel.app
+   - https://timlee.now
 
 ⏳ Take a look at what I’m working on right now.
 
